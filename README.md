@@ -9,7 +9,7 @@ summer time (DST on)
 winter time (DST off)
 ![DST off](https://upload.wikimedia.org/wikipedia/commons/thumb/9/90/Ora_de_iarn%C4%83.jpg/220px-Ora_de_iarn%C4%83.jpg)
 
-![general](https://1.bp.blogspot.com/-TYoMygjNwQQ/YOk8k2otfHI/AAAAAAAAei8/fe2p9MVk1LEG-RT25gaajd3FB6gEuikvgCLcBGAsYHQ/s2048/general.jpg)
+![general](https://1.bp.blogspot.com/-TYoMygjNwQQ/YOk8k2otfHI/AAAAAAAAei8/fe2p9MVk1LEG-RT25gaajd3FB6gEuikvgCLcBGAsYHQ/w200-h108/general.jpg)
 
 ![summer time](https://1.bp.blogspot.com/-UOlnVcWPGI0/YOlCZIbfATI/AAAAAAAAekQ/X4l5z9BfLjISWS1Yp53F1pst6Y99YNodACLcBGAsYHQ/w200-h113/vara3m.png)
 
